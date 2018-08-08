@@ -1,0 +1,1 @@
+# bednarekpiotr.com
